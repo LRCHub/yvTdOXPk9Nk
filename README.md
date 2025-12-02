@@ -1,0 +1,69 @@
+# Hikaru Utada – Can You Keep A Secret?
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.40] 近づきたいよ 君の理想に
+[00:05.56] おとなしくなれない
+[00:08.20] Can you keep a secret？
+[00:11.57] Hit it off like this Hit it off like this,
+[00:14.69] Oh baby Hit it off like this Hit it off like this, oh baby
+[00:20.65] Hit it off like this Hit it off like this,
+[00:24.11] Oh baby Hit it off like this Hit it off like this, oh baby
+[00:29.92] ここから ずっと 送ってる暗号
+[00:38.89] 君は まだ 解読できてない
+[00:45.39] 
+[00:48.02] 伝えよう やめよう
+[00:50.13] このまま隠そう
+[00:52.51] 逃げ切れなくなるまで
+[00:57.04] 信じよう だめだよ まだ疑えそうだもの
+[01:06.54] 
+[01:06.36] 近づきたいよ 君の理想に おとなしくなれない
+[01:13.10] Can you keep a secret？
+[01:15.53] 悲しくないよ 君がいるから
+[01:20.12] Can you keep a secret？ can you keep a secret？
+[01:24.65] 近づけないよ 君の理想に
+[01:30.65] 
+[01:29.33] すぐには 変われない can you keep a secret？
+[01:34.06] 悲しくなると 君を呼ぶから
+[01:38.40] Can you keep a secret？
+[01:40.70] Or このままsecret
+[01:47.20] 
+[01:43.56] Hit it off like this Hit it off like this,
+[01:47.18] Oh baby Hit it off like this Hit it off like this, oh baby
+[01:52.99] Hit it off like this Hit it off like this,
+[01:56.06] Oh baby Hit it off like this Hit it off like this, oh baby
+[02:25.06] 
+[02:02.44] 側にいても 遠回しな表現 探してる
+[02:10.94] 迷宮入りさせたくないなら
+[02:17.14] Won't you come on？
+[02:26.14] 
+[02:20.24] かすかな物音 追ってくる movin' shadow
+[02:25.18] 振り切れなくなる影
+[02:29.35] 少しの冒険と 傷付く勇気も あるでしょ
+[02:38.85] 
+[02:38.62] 近づきたいよ 君の理想に
+[02:43.18] おとなしくなれない
+[02:45.63] Can you keep a secret？悲しくないよ 君がいるから
+[02:52.43] Can you keep a secret？ can you keep a secret？
+[02:57.25] 近づけないよ 君の理想に
+[03:03.25] 
+[03:01.76] あとには 戻れない can you keep a secret？
+[03:06.38] おしゃべりじゃないと 証明してよ
+[03:11.10] Can you keep a secret？ Orこのままsecret
+[03:28.60] 
+[03:34.18] 今までずっと 秘密にしてた 誰にもいわないで
+[03:40.93] Can you keep a secret？
+[03:43.42] 悲しくないよ 君がいるから
+[03:47.88] Can you keep a secret？ can you keep a secret？
+[03:52.69] 傷付けないと 約束しても
+[03:57.00] 誰にもわからない can you keep a secret？
+[04:01.80] 悲しくないよ 君がいるから
+[04:06.97] Can you keep a secret？
+[04:08.53] Or このままsecret
+[04:15.03] 
+[04:15.76] Can you keep a secret？
+[04:25.03] Can you keep a secret？Can you keep a secret？
+[04:28.76] Can you keep a secret？
+[04:43.35] Can you keep a secret？Can you keep a secret？
+```
